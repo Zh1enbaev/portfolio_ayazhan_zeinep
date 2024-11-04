@@ -1,0 +1,1 @@
+# portfolio_ayazhan_zeinep
